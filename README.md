@@ -1,1 +1,1 @@
-## ReadMe at [https://url.blueboy.cf/create/](https://url.blueboy.cf/create/)
+## ReadMe at [https://url.bdplab.cc/create/](https://url.bdplab.cc/create/)
